@@ -4,6 +4,6 @@
 
 <br>
 
-<img width="900" alt="image" src="https://github.com/KimGyuri0526/ModernHome/assets/126050288/f4c12a3e-830f-4d66-ae75-f666e772c700">
+<img width="1200" alt="image" src="https://github.com/KimGyuri0526/ModernHome/assets/126050288/f4c12a3e-830f-4d66-ae75-f666e772c700">
 
 <br>
